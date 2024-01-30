@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning maths and science.
 - 💞️ I’m looking to collaborate with someone to somebody so that I can construct my understanding of the world.
 - 📫 How to reach me is that this function is not available now of the time unless I have the demand on this category.
-- 😄 Pronouns: Cheng Tian Zhi, Ciara.
+- 😄 Pronouns: Biologically female but mentally male
 - ⚡ Fun fact: I can be anyone and any form of matter exists in this world.
 
 <!---
